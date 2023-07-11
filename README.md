@@ -1,5 +1,5 @@
 ```
-🎧 Free Account Spotify Premium 3M
+🎧 Daily Free Account Spotify Premium 3M
 ```
 </details>
 <details>
